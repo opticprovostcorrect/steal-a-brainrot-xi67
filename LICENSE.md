@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with steal a brainrot Script best, the #1 Script. Includes no clip and aimbot for unbeatable
 
 
 
